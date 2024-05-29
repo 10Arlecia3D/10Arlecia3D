@@ -1,7 +1,7 @@
       Boas vindas ao meu perfil🥳😝
 
 
-- 👋 Oi, eu sou @10Arlecia3D
+- 👋 Oi, eu sou ARLECIA SOUSA 
 - 👀 Eu estou estudando no Alura,
 e começarei a desenvolver projetos aqui no GitHub. 
 
